@@ -38,4 +38,4 @@ I reserve the right to update or change my Privacy Policy at any time and you sh
 
 
 Contact Information
-For any questions or concerns regarding the privacy policy, please send me an email to abdulajonov01@gmail.com
+For any questions or concerns regarding the privacy policy, please send me an email to uksoft0307@gmail.com
